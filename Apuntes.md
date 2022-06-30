@@ -1,1 +1,0 @@
-# Apuntes - TODO LIST
